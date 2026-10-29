@@ -1,0 +1,6 @@
+- Delina's disinvited Dhallox to that year's galla
+- drew mustache on Delina's statue
+- 12 spikes w/ blood and 12 w/o for Old Man Tarnish
+- Official's ministry memory was someone who ran over kittens and was hit over the head and lost ability to reason
+- Chronicler has the ink
+- 
