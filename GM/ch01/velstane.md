@@ -1,6 +1,7 @@
-- Delina's disinvited Dhallox to that year's galla
-- drew mustache on Delina's statue
-- 12 spikes w/ blood and 12 w/o for Old Man Tarnish
-- Official's ministry memory was someone who ran over kittens and was hit over the head and lost ability to reason
-- Chronicler has the ink
-- 
+- Noble Legacy: Delina's disinvited Dhallox to that year's galla when his family kicked him out.
+- While at Velstane's Dhallox drew a mustache on Delina's statue
+- In the storage room, 12 spikes w/ blood and 12 w/o grabbed by Old Man Tarnish
+- Official Legacy: Torvin's ministry memory was someone at the Steel Ministry who ran over kittens and one day was hit over the head and lost ability to reason
+- Chronicler Legacy: Chronicler has the metallic ink from Vadilek's
+- The team has Vadilek's 2 leatherbound tomes
+- The team rescued the skaa and are giving them passage to Luthadel; They left Murn behind at The Crucible
