@@ -12,4 +12,5 @@
 - Torvin's ministry memory was someone at the Steel Ministry who ran over kittens and one day was hit over the head and lost ability to reason
 
 ## The Convict - Larn
-
+- knew one of the guards and he had a soft spot for Larn. He introduced Larn to the person who eventually helped him escape.
+- relationship with Cadme - she was very into him, but he had no interes
